@@ -1,2 +1,2 @@
 ## Patrycja Bachleda
-###### Hi! My name is Patrycja or Pati for short 😄 
+###### Hi! My name is Patrycja or Pati for short 🦁
